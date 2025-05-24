@@ -102,5 +102,6 @@
 https://discord.gg/8pJ6KYvR
 
 
+اتصل بينا LINKEDIN
 
-
+https://www.linkedin.com/in/chouaib-chouaib-2b2799354?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
